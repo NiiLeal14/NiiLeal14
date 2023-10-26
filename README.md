@@ -10,3 +10,6 @@ Meu nome é Nicole Leal Nogueira
 ### Você pode entrar em contato comigo 📫
 
 nicole.leal.nogueira@escola.pr.gov.br
+
+
+![](https://media.tenor.com/dlJSiLUJNmsAAAAC/math-calculate.gif)
